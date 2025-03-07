@@ -1,0 +1,3 @@
+#poetry
+
+Poetry's definition is essential for the discussion of its worth. That definition, however, is exceptionally difficult to pin down. It could expand to encompass any writing, by root technically any art. For this discussion, we will classify poetry as a form of writing which often follows patterns, emphasizing musical tone in favor of strict grammatical rules. In this sense, poetry is most definitely worth it. The increased expression possible by solely the last point is exceptional, though tradeoffs in legibility are expected. Forms, however, are quite interesting. Does the following of rhyme or meter positively and significantly affect quality of writing?

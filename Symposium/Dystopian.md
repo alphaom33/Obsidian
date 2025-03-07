@@ -1,0 +1,5 @@
+government
+survival
+environmental
+technological
+loss of individualism
