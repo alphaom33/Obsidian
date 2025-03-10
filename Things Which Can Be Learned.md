@@ -1,22 +1,30 @@
 #Yendorshone
-System is based upon the manipulation of change
+System is based upon the manipulation of change, expressed by time
 
-Nature of Souls
-The Unending
-The Grand Elite
-
-Which Soul do you have?
-Fueling
-Soul Connection
-Soul Mechanics
-Specifics of certain magics
+- Nature of Souls
+- The [[World Building#The Unending]]
+- The Grand Elite
+- Which Soul do you have?
+- Fueling
+- Soul Connection (interpretive)
+- Soul Mechanics (fundamental manners in which Souls function)
+- Specifics of certain magics
 
 ## Capabilities
-Please: Don't be like Harry Potter
+> [!danger]
+> Please: Don't be like Harry Potter
+
+### Manifestations
+Increase rate of change in oneself
+Desiccate a living thing
+Could weaken a building's foundations to make it collapse
+Revert the change induced by injury
+Objects thrown sped up or stopped
+
 ### Limitations
 Fuel is the largest limiter of power, both by intake and efficiency
 Connection with the soul is a difficult one to overcome, requiring very careful practice and training
-Skill, too, plays a roll. 
+Skill, too, plays a role. 
 To survive without a human, souls must lost their ability to utilize wellspring-style magic. Witches are not bound by this limitation
 Because of that loss, they are now only able to interface with consumption and excretion by humans.
 

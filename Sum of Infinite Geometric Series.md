@@ -1,4 +1,4 @@
-#calc2 #series
+#calc2/series
 $\frac{a_1}{1-r}$
 Examples:
 $0.\overline{2} =$ 

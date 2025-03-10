@@ -1,12 +1,12 @@
-#poetry
+#poetry #contempt
 A sea, punctuation abounds
 There, rising, above the deep it stands.
 Terrible, inhumane
-Borrowed phrases, progress forever, memory erases, needs a borrow
+Borrowed phrases, progress forever, memory erasure, needs a borrow
 checker
 World's own tongue, a great beast stands
 back again, yet never again
-Replacement, Propositions
+Replacement; Propositions
 Carbon, Zig, 
 Golang, Rust
 Yet unions and pointers
@@ -17,13 +17,16 @@ They Don't See
 How beautiful it stands
 
 This built upon all that which was before
-the world around and made upon, it frowned
-that modules when required closed the door
-the journal brought small talk, now Objects sound
+The world around and made upon, it frowned
+How modules when required closed the door
+The journal brought words small; now Objects sound
 
 Alone they reign beyond attempts against
-Untouched yet failing, complex
+Untouched, thus far failed, complex, so unknown
+None brought can seem to shout their praise, yet, minced,
+They stand still bright, still strong, still ingrained, shown
 
+The world revolves around that which none can 
 
 Imperative
 Procedural
