@@ -1,3 +1,4 @@
+#symposium
 - American Revolution
 	- 13 colonies
 - Westward expansion

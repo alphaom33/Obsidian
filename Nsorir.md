@@ -18,4 +18,4 @@ The ghost of Nsorir present found everyone ashamed and saddened at what had happ
 
 Nsorir arrived after [[Tilian]], and was never particularly good at magic. In comparison to the other two, she simply couldn't compete, and convinced herself that she didn't care about being good at this, either, so that she wouldn't have to try or feel bad about losing.
 
-Nsorir is sardonic and unmotivated. She lies around when [[Kantiel Erlin]] would be practicing, and [[Tilian]] would be talking with other students. She isn't particularly good at anything here, but desperately wants to be, maybe even could be, if she were to try harder. Her wit, however, is the sharpest of anyone in [[The Present Group (Working Title)]], and her metacognition the strongest
+Nsorir is sardonic and unmotivated. She lies around when [[Kantiel Erlin]] would be practicing, and [[Tilian]] would be talking with other students. She isn't particularly good at anything here, but desperately wants to be, maybe even could be, if she were to try harder. Her wit, however, is the sharpest of anyone in [[The Present Group (Working Title)]], her metacognition the most acute

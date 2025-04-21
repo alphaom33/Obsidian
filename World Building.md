@@ -75,7 +75,7 @@ Typically, travel without a host heavily damages a soul, but transport vessels h
 	Some plans have been drawn for ships which can travel the skies by using the combined storage of several human bodies, but even High Souls find this too cruel for now
 	As with everything in High Soul society, vehicular expression has become a competition, and many discarded vehicles provide convenient shelter for local wildlife, if they can get over the stench of that vehicle’s decaying storage
 
-### The Unending
+### The Unending/Possessions
 Some souls, referred to as Unending, will find a new body after using up the old one
 
 To gain a new host, they fight the old one

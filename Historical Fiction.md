@@ -1,3 +1,4 @@
+#symposium
 50 years from the date of publication
 began in 19th century
 

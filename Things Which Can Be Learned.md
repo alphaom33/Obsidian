@@ -1,11 +1,11 @@
-#Yendorshone
+#Yendorshone/magic
 System is based upon the manipulation of change, expressed by time
 
 - Nature of Souls
 - The [[World Building#The Unending]]
 - The Grand Elite
 - Which Soul do you have?
-- Fueling
+- Fueling - called 'mana' for discreetness' sake
 - Soul Connection (interpretive)
 - Soul Mechanics (fundamental manners in which Souls function)
 - Specifics of certain magics

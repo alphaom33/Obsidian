@@ -1,0 +1,28 @@
+#Yendorshone/characters
+#contempτ
+
+"The competition is in two weeks, so let's start planning"
+"What are we trying to do?"
+"Virda, you should really know this already. It's just a magic light show"
+"Don't insult Virda. You can't even do light magic."
+"Nsoris has an amazing eye if you just look, and here ideas are always good. But yes, please don't be condescending, Nsoris, it doesn't befit you"
+"Yes my ideas are always amazing, especially the pepper can project"
+"She said it, Kantiel"
+"What if we were to do a hunting scene?"
+"Why should we do that?"
+"A water hunting scene, see, because Kantiel loves boats, and Nsoris was a hunter, and we could make you the main character-"
+"Ah, yes, we all love to point out that Nsoris was good at hunting once. Nsoris loves being told that she was good at hunting once. Nsoris has no future or past apart from hunting, so you don't have to care about any other aspect of her."
+"To be fair, you really don't"
+"Tillian!"
+"Sorry, Kantiel. Shood I go apowogize nyow?"
+"You..."
+"Yes, Nsoris wouwd wike an apowogy. Wite Nyow"
+"So about that idea?"
+"I think it's pretty cool, Virda. Doo you think we could adapt it so that Nsoris feels more included?"
+"Um..."
+"I don't think Nsoris would like anything any of us make," she sighed, "*I*, would like to do the stars, but you already know what Nsoris would think of that"
+"Yeah, I love the idea." Her jaw opened in a manner most acceptable for the cataching of insects. She smirked,
+"I was going to do a reversal, but after seeing your face... I might actually go with it"
+"Nsoris..."
+"What do you mean by stars?"
+"Hm? Oh, I've wanted to do this for every project since the first one. We find the positions, names, and appearances for a bunch of stars, then artistically display them"

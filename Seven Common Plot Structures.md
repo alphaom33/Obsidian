@@ -1,4 +1,4 @@
-#notes
+#creativeWriting
 
 1. Freytag’s Pyramid - the pyramid thing
 2. The Hero’s Journey - oh

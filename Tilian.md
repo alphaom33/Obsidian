@@ -13,4 +13,4 @@ Immediately, Tilian became exceptional at all the tasks at which she had previou
 
 Going to the Grand Tower once the emissary arrived (maybe a month later?) seemed like an obvious next step, which she took to everyone's approval. After being placed within [[The Present Group (Working Title)]] Tilian excelled. She and [[Kantiel Erlin]] instantly meshed with one another, but she secretly (slightly) resents the older girl for having been *lucky* enough to arrive before her, and wants to lead by herself.
 
-Tilian possesses amazing skill in almost all areas, specializing in people and illusory effects
+Tilian possesses amazing skill in almost all areas, specializing in people and illusory effects. Because of this, however, she does not try exceptionally hard at anything; she would be like [[Nsorir]] if just a little bit less lucky
