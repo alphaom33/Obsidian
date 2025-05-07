@@ -21,7 +21,9 @@
 "My what?"
 "Your Possession," a small smirk
 "It was rather boring, actually. I was conversing with my *many* friends, when a strange light appeared before me. Upon its observation, I posed a quandary as to whether anyone else was experiencing the light's presence, before suddenly collapsing"
-"Posed a quandary?" a larger smirk
+"Posed a quandary?" her smirk widened
 "Perhaps you would better understand intelligent conversation if you hadn't been born in the literal backwoods"
 "Well my Possession was interesting, at least. If you remember, I used to live at The Eye. I was sailing on one of my family's merchant vessels, bringing a shipment of fabric to home. Then, a storm. Now, storms on The Eye are effectively unheard of, so our preparation had entailed nothing but a single bailing bucket. The mast wasn't even rigged to come down! While the winds were raging about us, our hull was filling with water, and our demise was creeping ever closer, I spotted it. Above us, leading the way home, a trail of lights in the sky. Only I could see it, but the sailors were willing to trust anything at that point. The whole way home, I led by the lights, fighting to keep consciousness against a strange force pressing in on me, until, finally, we spotted the harbor. I'm told they carried my unconscious body through the streets, cheering and dancing at the triumph over what should have been our end."
-""
+"That honestly makes mine not sound so bad"
+"I'm sure to you it was so"
+"Tillian..."

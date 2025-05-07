@@ -1,5 +1,5 @@
 #Yendorshone/characters
-#contempτ
+#contempt
 
 "The competition is in two weeks, so let's start planning"
 "What are we trying to do?"

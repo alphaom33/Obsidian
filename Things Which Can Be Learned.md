@@ -9,6 +9,7 @@ System is based upon the manipulation of change, expressed by time
 - Soul Connection (interpretive)
 - Soul Mechanics (fundamental manners in which Souls function)
 - Specifics of certain magics
+* Aptitudes
 
 ## Capabilities
 > [!danger]
@@ -27,6 +28,7 @@ Connection with the soul is a difficult one to overcome, requiring very careful 
 Skill, too, plays a role. 
 To survive without a human, souls must lost their ability to utilize wellspring-style magic. Witches are not bound by this limitation
 Because of that loss, they are now only able to interface with consumption and excretion by humans.
+Typically, each mage chooses an Aptitude by talent or desire to study more carefully. This aptitude will only focus on a specific element of magic, and results in the piece requiring much less fuel to utilize, such that it is actually viable for combat.
 
 ### Deep Magic
 Because of her being a witch, Virda can interface with the world itself, using drawn magic as souls would in [[World Building#The Wellspring]]
