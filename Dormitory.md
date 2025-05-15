@@ -4,8 +4,4 @@ Contains precisely three beds
      ----|
      |   |
      |   
------    
-|        
-|        
-----------
 ```
